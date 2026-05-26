@@ -1,16 +1,16 @@
-## Hi there 👋
+${\color{#961483} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎ ❞}$ /lyr
 
-<!--
-**sicklyid/sicklyid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+◞
 
-Here are some ideas to get you started:
+— ‎ ‎ ‎ ‎ ‎ .‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ***THE HEART*** *permakin*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+  ‎ ‎‎ ‎ ⸝⸝ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ fictionkin of zero_one, michael afton, peril, longtail, shadow the hedgehog .‎ ‎‎ ‎  ꕀ
+
+≡
+
+ ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ dni‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎⸝⸝‎  ‎ iwc‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
+ 
+ ⸝⸝  byi‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#961483} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
+
+HEART WIND CALAMARISPIDERART.png
