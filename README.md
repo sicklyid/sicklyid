@@ -14,4 +14,4 @@ ${\color{#961483} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎
  ⸝⸝  byi‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#961483} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
  
 
-[alt text](HEART WIND CALAMARISPIDERART.png)
+[Lineless art of the Heart, a pure white figure with sad, purple lips and a black blindfold blowing in nonvisible wind. ](HEART WIND CALAMARISPIDERART.png)
