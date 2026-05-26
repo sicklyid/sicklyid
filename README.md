@@ -9,9 +9,13 @@ ${\color{#961483} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎
 
 ≡
 
- ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ dni‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎⸝⸝‎  ‎ iwc‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
+ ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ dni‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎⸝⸝‎  ‎ iwc‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
  
  ⸝⸝  byi‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#961483} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
  
 
-[Lineless art of the Heart, a pure white figure with sad, purple lips and a black blindfold blowing in nonvisible wind. ](HEART WIND CALAMARISPIDERART.png)
+![Lineless art of the Heart, a pure white figure with sad, purple lips and a black blindfold blowing in nonvisible wind. ](heartwindcalamarispider.png)
+
+${\color{#d6d6d6} art‎ by‎ calamarispiderart }$
+
+${\color{#961483} ❝‎ i‎ ‎ just‎‎ boy‎ you‎ see‎ i‎ plead‎ of‎ thee‎ have‎ sympathy‎ for‎ me!‎ ❞}$ /lyr
