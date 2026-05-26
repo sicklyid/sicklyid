@@ -1,21 +1,38 @@
-${\color{#961483} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎ ❞}$ /lyr
+ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎ ![lace divider](lacedivider.png)
 
-◞
+###  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎    ‎‎ ‎     ‎‎ ‎‎ ‎   ‎  ‎ ‎‎  ‎ ‎‎   ‎ ‎‎ ‎ ${\color{#864187} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎ ❞}$ 
 
-— ‎ ‎ ‎ ‎ ‎ .‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ***THE HEART*** *permakin*
+ ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎  ‎   ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎  ‎‎ ‎  ${\color{#cccccc} /lyr}$
 
+ ◞
 
-  ‎ ‎‎ ‎ ⸝⸝ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ fictionkin of zero_one, michael afton, peril, longtail, shadow the hedgehog .‎ ‎‎ ‎  ꕀ
+ — ‎ ‎ ‎ ‎ ‎ .‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ***THE HEART*** *permakin*  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎   ⸝⸝  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎   *fictionkins* ; michael afton , shadow the  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ hedgehog , zero_one , longtail , peril
 
-≡
-
- ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ dni‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship , jashship (see below) .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎⸝⸝‎  ‎ iwc‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎  ° .  　　　 he . him  　　　 ┆  　　　 6teen  　　　 ┆  　　　 audhd . suspected bpd
  
- ⸝⸝  byi‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#961483} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
+ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎ ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎ ‎ ‎‎♡‌‌
+
+‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ *dni*‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship , jashship (see below) .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ˬˬˬ  ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎*iwc*‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
  
+‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ⸝⸝‎ ‎‎ ‎ ‎ ‎‎ ‎‎ *byi*‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#864187} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
+
+︶︶
 
 ![Lineless art of the Heart, a pure white figure with sad, purple lips and a black blindfold blowing in nonvisible wind. ](heartwindcalamarispider.png)
-
 ${\color{#d6d6d6} art‎ by‎ calamarispiderart }$
+ ‎‎   
+  ‎‎   
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎  ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎  read more on my [pronouns.cc](https://pronouns.cc/@sicklyid) or leave a message on my [strawpage](https://thesaddenedandweak.straw.page/)
+ ‎ ‎‎   ‎ ‎‎  
+  ‎ ‎‎   ‎ ‎‎  
+   ‎ ‎‎   ‎ ‎‎  
+    ‎ ‎‎   ‎ ‎‎  
+     ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎  
+      ‎ ‎‎   ‎ ‎‎  
+###  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎    ‎‎ ‎     ‎‎ ‎‎ ‎   ‎  ‎ ‎‎  ‎ ‎‎   ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎    ‎‎ ‎     ‎‎ ‎‎ ‎   ‎  ‎ ‎‎  ‎ ‎‎   ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎    ‎‎ ‎     ‎‎ ‎‎ ‎   ‎  ‎ ‎‎  ‎ ‎‎   ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎    ‎‎ ‎     ‎‎ ‎‎ ‎   ‎  ‎ ‎‎  ‎ ‎‎   ‎ ‎‎ ‎ ${\color{#864187} ❝‎ i‎ ‎ am‎ ‎ just‎‎ boy‎ you‎ see‎ i‎ plead‎ of‎ thee‎ have‎ sympathy‎ for‎ me!‎ ❞}$
+ ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎  ‎   ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎  ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ${\color{#cccccc} /lyr}$
 
-${\color{#961483} ❝‎ i‎ ‎ am‎ ‎ just‎‎ boy‎ you‎ see‎ i‎ plead‎ of‎ thee‎ have‎ sympathy‎ for‎ me!‎ ❞}$ /lyr
+
+
+
+
