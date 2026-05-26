@@ -9,7 +9,7 @@ ${\color{#961483} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎
 
 ≡
 
- ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ dni‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎⸝⸝‎  ‎ iwc‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
+ ‎ ‎‎ ‎  ‎ ‎‎ ‎  ‎ dni‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship , jashship (see below) .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎⸝⸝‎  ‎ iwc‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
  
  ⸝⸝  byi‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#961483} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
  
