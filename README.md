@@ -18,4 +18,4 @@ ${\color{#961483} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎
 
 ${\color{#d6d6d6} art‎ by‎ calamarispiderart }$
 
-${\color{#961483} ❝‎ i‎ ‎ just‎‎ boy‎ you‎ see‎ i‎ plead‎ of‎ thee‎ have‎ sympathy‎ for‎ me!‎ ❞}$ /lyr
+${\color{#961483} ❝‎ i‎ ‎ am‎ ‎ just‎‎ boy‎ you‎ see‎ i‎ plead‎ of‎ thee‎ have‎ sympathy‎ for‎ me!‎ ❞}$ /lyr
