@@ -16,6 +16,8 @@
  
 ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ⸝⸝‎ ‎‎ ‎ ‎ ‎‎ ‎‎ *byi*‎ ‎ ‎— ‎ ‎‎ ‎ ${\color{#864187} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) . 
 
+ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ˬˬ . ‎‎ ‎ ‎‎*int* ‎ ‎— ‎ ‎‎ ‎ fictionkins, tlt, sonic, fleetwood mac, david bowie, saiki k, death note, warrior cat , , ,
+
 ︶︶
 
 ![Lineless art of the Heart, a pure white figure with sad, purple lips and a black blindfold blowing in nonvisible wind. ](heartwindcalamarispider.png)
