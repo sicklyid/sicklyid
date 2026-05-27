@@ -24,7 +24,7 @@
 ${\color{#d6d6d6} art‎ by‎ calamarispiderart }$
  ‎‎   
   ‎‎   
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎  ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎  read more on my [pronouns.cc](https://pronouns.cc/@sicklyid) or leave a message on my [strawpage](https://thesaddenedandweak.straw.page/)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎  ‎ ‎‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎  read more on my [pronouns.cc](https://pronouns.cc/@sicklyid) or leave a message on my [strawpage](https://thesaddenedandweak.straw.page/) or my [atabook](https://sickunsightlyid.atabook.org/)
  ‎ ‎‎   ‎ ‎‎  
   ‎ ‎‎   ‎ ‎‎  
    ‎ ‎‎   ‎ ‎‎  
