@@ -15,7 +15,7 @@
 ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ *dni*‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship , jashship (see below) .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ˬˬˬ  ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎*iwc*‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
  
 ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ⸝⸝‎ ‎‎ ‎ ‎ ‎‎ ‎‎ *byi*‎ ‎ ‎— ‎ ‎‎ ‎ - ${\color{#864187} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) .  
- ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎    ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎   ‎   ‎      ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎     ‎   ‎      ‎ ‎   ‎ ‎‎ ‎   ‎‎  - i might use first person pronouns for my kins if i'm mentally shifted/speaking about kinmem
+ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎    ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎   ‎   ‎      ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎     ‎   ‎      ‎- i might use first person pronouns for my kins if i'm mentally shifted/speaking about kinmem
 
  ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ˬˬ . ‎‎ ‎ ‎‎*int* ‎ ‎— ‎ ‎‎ ‎ fictionkins, tlt, sonic, fleetwood mac, david bowie, saiki k, death note, warrior cat , , ,
 
