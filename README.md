@@ -12,7 +12,7 @@
  
  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎ ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎  ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎ ‎‎ ‎   ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎ ‎  ‎ ‎ ‎‎♡‌‌
 
-‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ *dni*‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship , jashship (see below) .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ˬˬˬ  ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎*iwc*‎ ‎ ‎— ‎ ‎‎ ‎ jashers , doubles of the heart + zero_one ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
+‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ *dni*‎ ‎ ‎— ‎ ‎‎ ‎ basic dni , proship , jashship (see below), heart doubles .  ‎  ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ˬˬˬ  ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎*iwc*‎ ‎ ‎— ‎ ‎‎ ‎ jashers  ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎  ‎
  
 ‎‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ⸝⸝‎ ‎‎ ‎ ‎ ‎‎ ‎‎ *byi*‎ ‎ ‎— ‎ ‎‎ ‎ - ${\color{#864187} THE‎ MIND‎ and‎ THE‎ SOUL‎ are‎ my‎ brothers‎ !}$ (kinmem / yumefamilial by proxy) .  
  ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎   ‎ ‎‎   ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎    ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎‎ ‎  ‎‎ ‎   ‎ ‎‎    ‎   ‎   ‎      ‎ - i might use first person pronouns for my kins if i'm mentally shifted/speaking about kinmem
