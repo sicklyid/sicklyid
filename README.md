@@ -1,6 +1,6 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#140212} ❝‎ i'm‎ needed‎ if‎ we're‎ to‎ stay‎ alive!‎ ❞}$
+<img align="left" width="250" src="HEARTGITHUBCALAMARISPIDERART.png"> 
 
-<img align="left" width="150" src="HEARTGITHUBCALAMARISPIDERART.png">
+${\color{#140212} THE‎ HEART}$
 
-
-<br clear="left"/>
+‎ ‎ ‎ ‎ ‎    ‎   ‎    ‎      ‎ ‎‎ ‎ ‎ ‎ ‎    ‎   ‎    ‎      ‎ ‎‎ 
+‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=sicklyid&color=775667&label=♡)
