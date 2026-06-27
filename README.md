@@ -25,9 +25,9 @@ he . him ‎ ‎  ‎ ‎ ‎‎*✦*‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ IDkin o
  
  dncover/copy . usually happy to int/c+h , but there's a good
  
- chance i'll be afk . i might be using a typing quirk (parentheses
- 
- ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎like these,,) for kin reasons .
+ chance i'll be afk . i might be using a typing quirk (...)
+
+
 <br clear="left"/>
 
 ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎
